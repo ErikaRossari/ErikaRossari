@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ErikaRossari
+- 👋 Hi, I’m @EryErikaa
 - 👀 I’m interested in Formula1
 - 🌱 I’m currently learning Mechanical engineering
 - 💞️ I’m looking to collaborate on no, I'm not looking to collaborate, I'm sociopathic 
